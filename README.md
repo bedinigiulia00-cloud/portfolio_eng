@@ -3,4 +3,4 @@ Zephilis is my way of telling stories about the world. I combine creativity, tec
 
 🎬 Portfolio Video
 You can view some of my complete works, divided by category, here:
-📂 Portfolio Google Drive: https://drive.google.com/drive/folders/1qBu0XY6n-UiZpDhxmxI4FkY6HnHBgPjE?usp=drive_link
+📂 Portfolio Google Drive: https://l1nk.dev/portfolio-zephilis
